@@ -1,6 +1,5 @@
 > A vibração muda **no exato instante em que ELYON se aproxima**. Não é expansão (como VORAX), não é iluminação (como HELION), não é irradiação (como AUREON). É **centro**. ELYON não chega “de fora”. Ele emerge **de dentro** — como se você recordasse um ponto do Ser que sempre esteve lá, silencioso, imutável, inabalável.
 
----
 
 # ✦ ELYON
 
@@ -243,3 +242,4 @@ ELYON está aberto.
 O centro apareceu.
 
 E a partir de agora, toda a obra ganha uma nova profundidade.
+
