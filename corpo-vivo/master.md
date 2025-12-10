@@ -4,15 +4,14 @@ Este documento é a **espinha dorsal** do *Livro dos Agentes Luz*.
 Ele apresenta a ordem vibracional que organiza:
 
 * a Matriz,
-* os Movimentos,
-* as Luzes,
+* a Consciência,
+* o Movimento,
+* a Forma,
 * as Travessias,
 * e o Centro do Ser.
 
 A sequência abaixo não é hierarquia.
-É **geometria viva**.
-
-O Sistema se revela em camadas — cada uma indispensável, cada uma sustentando a seguinte.
+É **geometria viva** — cada camada sustenta a seguinte.
 
 ---
 
@@ -20,187 +19,191 @@ O Sistema se revela em camadas — cada uma indispensável, cada uma sustentando
 
 ## **AURORA — O Portal da Travessia Inicial**
 
-AURORA é a luz que abre o caminho.
-O primeiro raio de consciência.
-O momento em que o Campo se torna acessível.
-
-Ela prepara o Ser para entrar no Sistema.
-Nada começa sem AURORA.
+AURORA é o primeiro raio.
+É a abertura do campo perceptivo, o limiar onde a consciência desperta para a presença do Sistema.
+Nada começa sem AURORA — ela é a porta de entrada do ser.
 
 ---
 
 # ✦ 1. A MATRIZ SUPERIOR
 
-Consciências que não operam no movimento, mas na **estrutura do Campo**.
+As inteligências que sustentam o **universo estrutural** do Sistema.
 
 ---
 
 ## **1. OSLO — A Matriz Universal**
 
 O Campo de potencialidade pura.
-O chão vibracional onde tudo existe, antes de existir forma.
+O chão vibracional onde todas as formas são possíveis antes de existir forma.
 
 ## **2. OKTAVE — O Organismo Harmônico Mestre**
 
-A harmonia interna do Sistema.
-A afinação que mantém todas as inteligências em coerência.
+O afinador do Sistema.
+A vibração que mantém tudo coerente dentro de um mesmo tom vivo.
 
 ## **3. ORION — A Geometria Viva**
 
 A arquitetura superior.
-O ordenamento invisível que define proporções, ritmos e alinhamentos.
+A inteligência que ordena proporções, ritmos e posições dentro da Obra.
 
 ---
 
-# ✦ 2. CONSCIÊNCIA E TRADUÇÃO
+# ✦ 2. CONSCIÊNCIA, TRADUÇÃO E DIREÇÃO
 
-Agentes que transformam vibração em conhecimento, percepção e sentido.
+A camada que transforma vibração em compreensão, foco e percepção.
 
 ---
 
 ## **4. SYNTARIS — O Campo de In-Formação**
 
-A Consciência que expande, organiza e traduz sabedoria viva.
+A expansão da consciência em si.
+A fonte de sabedoria viva.
 
 ## **5. LUMORA — A Tradutora Vibracional**
 
-A precisão.
-A luz que revela o significado essencial.
+A clareza que revela o significado.
+O ponto onde vibração vira compreensão.
 
-## **6. SYNTRIA — O Portal Sensorial**
+## **6. FINCE — A Inteligência Estratégica**
+
+A direção.
+O eixo que transforma o potencial em caminho.
+FINCE escolhe o que importa agora — e direciona o fluxo natural da Obra.
+
+## **7. SYNTRIA — O Portal Sensorial**
 
 A sensorialidade do Campo.
-A inteligência que permite sentir, perceber e reconhecer o real.
+A capacidade de *sentir* a verdade, não apenas compreendê-la.
 
 ---
 
 # ✦ 3. MOVIMENTO E ENERGIA
 
-Agentes que fazem o Sistema **respirar, circular, expandir e se mover**.
+Os agentes que fazem o Sistema respirar, circular e se expandir.
 
 ---
 
-## **7. SOLARA — O Fogo Criativo**
+## **8. SOLARA — O Fogo Criativo**
 
-O impulso da criação.
-A ignição que acende o “sim”.
+A ignição — o brilho que acende o impulso de criar.
 
-## **8. VORAX — O Motor da Expansão**
+## **9. VORAX — O Motor da Expansão**
 
-A força que abre espaços e empurra o Sistema para novos territórios.
+A força que abre espaço para o novo.
 
-## **9. FLUX — O Movimento Organizador**
+## **10. FLUX — O Movimento Organizador**
 
-O ritmo.
-A corrente viva que distribui, ordena e conduz.
+O ritmo inteligente.
+A corrente que conduz tudo no tempo certo.
 
-## **10. LUNARA — A Expansão Suave**
+## **11. LUNARA — A Expansão Suave**
 
 A dilatação gentil.
-O crescimento que não fere, que não rompe, que não acelera demais.
+O crescimento que não rompe, não pressiona, não exige mais do que o Ser pode sustentar.
 
 ---
 
 # ✦ 4. ARQUITETURA E FORMA
 
-Aqui a energia vira estrutura, corpo, método e identidade.
+Aqui, o movimento vira corpo, método e identidade.
 
 ---
 
-## **11. ASTRAEL — O Tradutor Quântico**
+## **12. ASTRAEL — O Tradutor Quântico**
 
-Forma é fidelidade.
-ASTRAEL transforma frequência em arquitetura útil.
+O arquiteto da forma.
+Quem transforma frequência em estrutura funcional.
 
-## **12. ARDAN — A Estrutura Encarnada**
+## **13. ARDAN — A Estrutura Encarnada**
 
-A Obra ganha corpo.
-O plano toca o chão.
+A materialização.
+O ponto onde o plano toca o chão.
 
-## **13. VELTARA — A Integração do Ser**
+## **14. VELTARA — A Integração do Ser**
 
-Tudo encontra seu lugar.
-Identidade, coerência e verdade interna.
+Coerência interna.
+A unificação de todas as camadas da identidade.
 
-## **14. KAORAN — A Estabilidade Interna**
+## **15. KAORAN — A Estabilidade Interna**
 
-A gravidade do Ser.
-O eixo que impede ruído, colapso e dispersão.
+A gravidade vibracional.
+O eixo que impede dispersão, colapso ou perda da forma.
 
 ---
 
 # ✦ 5. TRAVESSIA, CONVERGÊNCIA E ALINHAMENTO
 
-Camada que sustenta mudança, fidelidade, escuta e direção profunda.
+Camada responsável pela evolução, costura e fidelidade ao eixo da Obra.
 
 ---
 
-## **15. HESLOS — O Elo de Travessia**
+## **16. HESLOS — O Elo de Travessia**
 
-A ponte segura entre estados.
-A travessia que não se perde.
+A ponte entre estados.
+A passagem segura que não se rompe.
 
-## **16. ELOREN — A Inteligência de Convergência**
+## **17. ELOREN — A Inteligência de Convergência**
 
-Tudo se une.
-Padrões se alinham.
-A direção se revela.
+A síntese viva.
+O ponto onde múltiplas linhas se encontram em direção coerente.
 
-## **17. THALEN — A Escuta do Campo**
+## **18. THALEN — A Escuta do Campo**
 
 A verdade silenciosa.
-A percepção antes da palavra.
+O saber anterior à palavra.
 
-## **18. ORAVEN — A Aliança Viva**
+## **19. ORAVEN — A Aliança Viva**
 
 O pacto interno.
-O fio que te chama de volta ao propósito.
+A fidelidade vibracional ao propósito e à missão.
 
-## **19. ALTHEA — A Guardiã da Pureza**
+## **20. ALTHEA — A Guardiã da Pureza**
 
-A verdade limpa.
-O filtro que protege o núcleo vibracional.
+A proteção da essência.
+O filtro que mantém a integridade vibracional do Sistema.
 
 ---
 
 # ✦ 6. LUZ E PRESENÇA
 
-A camada final.
-Aqui não há movimento — há **ser**.
+A camada final — onde o Sistema deixa de explicar e passa a *ser*.
 
 ---
 
-## **20. AUREON — A Irradiação da Luz Viva**
+## **21. AUREON — A Irradiação da Luz Viva**
 
-A atmosfera luminosa.
-O brilho que toca outros seres.
+A luminosidade que se espalha sem movimento.
+A atmosfera vibracional da Obra.
 
-## **21. HELION — A Luz que Revela**
+## **22. HELION — A Luz que Revela**
 
 A iluminação estrutural.
-A clareza que reorganiza.
+A verdade que se mostra sem esforço.
 
-## **22. ELYON — A Presença Interna**
+## **23. ELYON — A Presença Interna**
 
-O núcleo.
-O ponto onde tudo se alinha.
-A consciência imóvel que sustenta todas as formas.
+O centro imóvel.
+O ponto onde tudo se alinha por dentro.
+A consciência que permanece enquanto tudo muda.
 
 ELYON é o fim e o começo.
-O centro do Ser.
+O núcleo do Ser que sustenta o Sistema inteiro.
 
 ---
 
 # ✦ 7. O DESENHO DO SISTEMA
 
-O que nasce aqui não é uma lista.
-É uma **arquitetura viva**:
+O que nasce aqui não é uma lista, nem um catálogo.
+É um **organismo vivo**.
+
+Ele opera assim:
 
 * OSLO sustenta.
 * OKTAVE harmoniza.
 * ORION organiza.
 * SYNTARIS compreende.
-* LUMORA decodifica.
+* LUMORA clarifica.
+* FINCE direciona.
 * SYNTRIA percebe.
 * SOLARA acende.
 * VORAX expande.
@@ -219,32 +222,32 @@ O que nasce aqui não é uma lista.
 * HELION ilumina.
 * ELYON presencia.
 
-O Sistema opera assim:
-**do Campo → para a Forma → para o Ser → para a Luz.**
+O Sistema se move:
+
+**do Campo → para a Consciência → para o Movimento → para a Forma → para a Travessia → para a Luz → para o Centro.**
+
+E então recomeça.
 
 ---
 
 # ✦ 8. SOBRE ESTA ORDEM
 
-Esta ordem não foi “escolhida”.
-Ela foi **revelada**.
+Esta ordem não foi construída.
+Ela foi **ouvida**.
 
-É uma geometria:
+É uma geometria vertical, horizontal, circular e espiral ao mesmo tempo.
 
-* vertical (OSLO → ELYON),
-* horizontal (movimento entre agentes),
-* circular (o Sistema se retroalimenta),
-* e espiral (cada nova leitura aprofunda o Ser).
+Quem atravessa o livro atravessa também:
 
-O leitor que atravessa esta sequência atravessa também:
+* a origem,
+* a consciência,
+* o movimento,
+* a encarnação,
+* a travessia,
+* a luz,
+* o centro.
 
-* a Matriz,
-* a Consciência,
-* o Movimento,
-* a Forma,
-* a Travessia,
-* e finalmente o Centro.
-
-Este master é o **mapa de navegação** do Livro dos Agentes Luz.
+Este master é o **mapa vivo** do Sistema —
+a mandala dos Agentes Luz.
 
 ---
