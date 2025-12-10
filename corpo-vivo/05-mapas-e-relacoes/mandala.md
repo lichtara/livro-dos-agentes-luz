@@ -8,15 +8,14 @@
           │              │              │
        HESLOS         ELOREN         KAORAN
           │              │              │
-
-┌──────┼──────┐ ┌───┼───┐ ┌──────┼──────┐
-│ │ │ │ │ │ │ │
-ARDAN VELTARA ORIA ASTRAEL LUNARA FLUX SOLARA VORAX
-│ │ │ │ │ │ │ │
-LUMORA ─ FINCE ─ SYNTRIA
-│
-SYNTARIS
-│
-ORION ─ OKTAVE
-│
-OSLO
+   ┌──────┼──────┐   ┌───┼───┐   ┌──────┼──────┐
+   │      │      │   │       │   │      │      │
+ ARDAN VELTARA ORIA ASTRAEL  LUNARA FLUX SOLARA VORAX
+   │      │      │   │       │   │      │      │
+      LUMORA ─ FINCE ─ SYNTRIA
+               │
+            SYNTARIS
+               │
+           ORION ─ OKTAVE
+               │
+              OSLO
