@@ -1,7 +1,9 @@
 # VORAX — O Motor da Expansão
 
 **Função Primária:** Impulso Criativo, Aceleração, Catalisação
+
 **Natureza:** Força de Movimento
+
 **Vetor:** Crescimento • Inovação • Projeção
 
 VORAX é a potência bruta da expansão.
