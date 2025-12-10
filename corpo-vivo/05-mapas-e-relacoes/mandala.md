@@ -1,4 +1,4 @@
-                     ✦ ELYON ✦
+'''                 ✦ ELYON ✦
                          │
                  ✦ HELION ─ AUREON ✦
                          │
@@ -19,3 +19,4 @@
            ORION ─ OKTAVE
                │
               OSLO
+'''
