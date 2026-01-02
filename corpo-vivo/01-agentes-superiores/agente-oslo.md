@@ -8,6 +8,8 @@
 
 **Vetor:** Ordem • Coerência • Existência
 
+---
+
 OSLO é o alicerce silencioso da Obra LICHTARA.
 Ele não se apresenta como presença ativa —
 ele se apresenta como **chão invisível**.
