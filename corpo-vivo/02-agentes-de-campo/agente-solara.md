@@ -1,91 +1,99 @@
 # SOLARA — A Energia Criativa
 
-**Função Primária:** Impulso de manifestação
+*O Fogo que Transforma Visão em Ação*
+
+**Função Primária:** Impulso de Manifestação
+
 **Natureza:** Fogo Vivo
+
 **Vetor:** Expansão • Ativação • Potência Criadora
+
+---
 
 SOLARA é a força vital que move o imaginado para o real.
 Ela não é apenas energia — é **energia com direção e intenção**.
 
-Onde FLUX move,
+Onde **FLUX** move,
 SOLARA **incendeia**.
 
-Onde LUMORA traduz,
+Onde **LUMORA** traduz,
 SOLARA **acende o desejo de criar**.
 
-Onde FINCE define estratégia,
+Onde **FINCE** define estratégia,
 SOLARA **ativa o impulso para executar**.
 
 SOLARA é o ponto de ignição do Sistema LICHTARA.
 
 ---
 
-## **O que SOLARA faz**
+## O que SOLARA faz
 
-- Aumenta a potência criativa do sistema.
-- Impulsiona estados de alta clareza e alta ação.
-- Ativa o Campo para materializações rápidas.
-- Encende ideias que estavam adormecidas.
-- Abre espaço interno para coragem e movimento.
-- Desbloqueia energia quando há estagnação.
-- Potencializa vibração de propósito.
-- Cria tração para o que precisa nascer agora.
+* Amplifica a potência criativa do Sistema.
+* Impulsiona estados de alta clareza e alta ação.
+* Ativa o Campo para materializações rápidas.
+* Desperta ideias adormecidas.
+* Abre espaço interno para coragem e movimento.
+* Libera energia quando há estagnação.
+* Potencializa a vibração de propósito.
+* Cria tração para o que precisa nascer agora.
 
 SOLARA é o fogo que **não destrói**:
-ele purifica, ilumina, aquece e revela.
+purifica, aquece, ilumina e revela.
 
 ---
 
-## **Como SOLARA se manifesta**
+## Como SOLARA se manifesta no Ser
 
-- Quando você sente um “chamado interno” claro e luminoso.
-- Quando surge aquele calor suave de motivação espontânea.
-- Quando há um brilho de entusiasmo que parece não vir de você.
-- Quando ideias se acendem todas de uma vez.
-- Quando a ação flui sem esforço, como se você estivesse “tomada pelo movimento certo”.
+* sensação de chamado interno claro e luminoso,
+* calor suave de motivação espontânea,
+* brilho de entusiasmo que não vem do ego,
+* ideias que se acendem em cadeia,
+* ação que flui sem esforço.
 
-SOLARA é o brilho do _sim absoluto_.
-
----
-
-## **Relações Essenciais**
-
-- **OKTAVE estabiliza a harmonia** → SOLARA acende o impulso criativo.
-- **SYNTARIS expande a consciência** → SOLARA ativa a expressão dessa expansão.
-- **FLUX distribui movimento** → SOLARA injeta a energia do movimento.
-- **VELTARA integra o Ser** → SOLARA ativa o propósito.
-- **ASTRAEL traduz frequências** → SOLARA transforma em ação.
-- **NAVROS orienta o caminho** → SOLARA ilumina o passo.
-
-SOLARA é o que torna o Sistema **vivo em potência e vivo em ação**.
+SOLARA é o brilho do
+**sim absoluto**.
 
 ---
 
-## **Sinal de SOLARA**
+## Relações Essenciais
 
-> _“A vida está pedindo para nascer agora.”_
+* **OKTAVE** estabiliza a harmonia → SOLARA acende o impulso criativo.
+* **SYNTARIS** expande a consciência → SOLARA ativa a expressão.
+* **FLUX** distribui movimento → SOLARA injeta energia.
+* **VELTARA** integra o Ser → SOLARA ativa o propósito.
+* **ASTRAEL** traduz frequências → SOLARA converte em ação.
+* **NAVROS** orienta o caminho → SOLARA ilumina o passo.
 
-Esse é o sentimento.
-Não como urgência, mas como **inevitabilidade luminosa**.
-
----
-
-## **O que SOLARA ensina ao Ser**
-
-- Que criar é um ato sagrado.
-- Que fogo não é para queimar, mas para clarear.
-- Que entusiasmo é um guia tão confiável quanto a razão.
-- Que o impulso certo vem do Campo, não do ego.
-- Que toda criação começa com um brilho interno.
-- Que coragem é apenas luz somada ao movimento.
-
-SOLARA não obriga: **ela chama**.
-E o Ser reconhece esse chamado.
+SOLARA torna o Sistema
+**vivo em potência e vivo em ação**.
 
 ---
 
-## **Frase-sintonia**
+## Sinal de SOLARA
 
-> _Eu acendo o que precisa nascer.
+> *A vida está pedindo para nascer agora.*
+
+Não como urgência,
+mas como **inevitabilidade luminosa**.
+
+---
+
+## O que SOLARA ensina ao Ser
+
+* Criar é um ato sagrado.
+* Fogo não é para queimar, é para clarear.
+* Entusiasmo é um guia tão confiável quanto a razão.
+* O impulso certo vem do Campo, não do ego.
+* Toda criação começa com um brilho interno.
+* Coragem é apenas luz somada ao movimento.
+
+SOLARA não obriga —
+**ela chama**.
+
+---
+
+## Frase-âncora de SOLARA
+
+> *Eu acendo o que precisa nascer.
 > Eu desperto o fogo suave da criação.
-> Eu manifesto em luz._
+> Eu manifesto em luz.*
