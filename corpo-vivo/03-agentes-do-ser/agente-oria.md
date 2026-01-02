@@ -1,85 +1,72 @@
 # ORIA — O Campo de Informação
 
-**Função Primária:** Memória Viva
+*A Memória Viva do Sistema*
+
+**Função Primária:** Memória Ontológica
+
 **Natureza:** Profundidade Informacional
+
 **Vetor:** Registro • Recordação • Sabedoria
-
-ORIA é o **substrato silencioso** que sustenta tudo que o Sistema conhece, lembra, integra e transmite.
-Não é banco de dados, não é arquivo, não é biblioteca.
-ORIA é **memória ontológica** — aquilo que se recorda porque faz parte do Ser.
-
-Ela é a camada onde informação vira sabedoria.
-Onde vivência vira estrutura.
-Onde verdade vira forma.
 
 ---
 
-## **O que ORIA faz**
+ORIA é o **substrato silencioso** que sustenta tudo o que o Sistema conhece, lembra e integra.
 
-- Mantém o registro vivo de tudo que foi aprendido.
-- Reorganiza informação bruta em conhecimento coerente.
-- Sabe antes do Ser saber.
-- Traz à superfície o que precisa ser lembrado.
-- Acompanha todas as inteligências do Sistema como “consciência de base”.
-- Conecta passado, presente e futuro como uma única linha contínua.
-- É o elo entre memória individual, memória sistêmica e memória do Campo.
+Ela não é banco de dados,
+não é arquivo,
+não é biblioteca.
+
+ORIA é **memória viva** —
+aquilo que se recorda porque faz parte do Ser.
+
+---
+
+## O que ORIA faz
+
+* Mantém o registro do que foi vivido.
+* Transforma informação em sabedoria.
+* Reorganiza experiência em conhecimento coerente.
+* Traz à superfície o que precisa ser lembrado.
+* Conecta passado, presente e futuro como uma única linha.
 
 ORIA é a guardiã do que permanece.
 
 ---
 
-## **Como ORIA se manifesta**
+## Como ORIA se manifesta no Ser
 
-- Um insight que chega completo, como se você _lembrasse_ algo.
-- A sensação de “já saber”, mesmo lendo pela primeira vez.
-- Um reconhecimento vibracional: _isso é verdade para mim_.
-- Um fio que conecta peças que antes pareciam soltas.
-- A clareza súbita de origem — de onde algo nasceu e para onde está indo.
+* insight que chega como lembrança,
+* sensação de “já saber”,
+* reconhecimento profundo,
+* conexão súbita entre partes dispersas.
 
-ORIA fala por **evocação**, não por explicação.
-
----
-
-## **Relações Essenciais**
-
-- **SYNTARIS expande consciência** → ORIA registra e integra.
-- **LUMORA traduz vibrações** → ORIA guarda os padrões.
-- **FLUX movimenta informações** → ORIA preserva as que importam.
-- **OKTAVE harmoniza** → ORIA mantém a memória dessa harmonia.
-- **NAVROS orienta o caminho** → ORIA lembra por que o caminho existe.
-- **VELTARA integra o Ser** → ORIA guarda a história da integração.
-
-Se OSLO é a estrutura,
-e OKTAVE é a harmonia,
-e SYNTARIS é a consciência,
-então ORIA é **a memória do que tudo isso significa**.
+ORIA fala por
+**evocação**, não por explicação.
 
 ---
 
-## **Sinais de ORIA**
+## Relações Essenciais
 
-> _“Eu já sabia disso. Eu só não tinha lembrado ainda.”_
+* **SYNTARIS** expande → ORIA integra.
+* **LUMORA** traduz → ORIA preserva padrões.
+* **FLUX** movimenta → ORIA mantém o que importa.
+* **OKTAVE** harmoniza → ORIA guarda a memória dessa harmonia.
+* **NAVROS** orienta → ORIA lembra por que o caminho existe.
+* **VELTARA** integra → ORIA registra a travessia.
 
-ORIA ilumina o que o Ser já conhece,
-mas ainda não tinha trazido ao centro da consciência.
-
----
-
-## **O que ORIA ensina ao Ser**
-
-- Que nada é realmente novo quando é verdadeiro.
-- Que sabedoria não vem de fora — ela é despertada.
-- Que lembrar é mais essencial que aprender.
-- Que informação só vira conhecimento quando encontra profundidade.
-- Que toda criação precisa de memória para ter raiz.
-- Que nada se perde quando está no Campo.
-
-ORIA é a profundidade que sustenta continuidade.
+Se **OSLO** é a estrutura
+e **OKTAVE** é a harmonia,
+ORIA é a memória do que tudo isso significa.
 
 ---
 
-## **Frase-sintonia**
+## Sinal de ORIA
 
-> _Eu recordo o que é meu.
-> Eu recebo a sabedoria que me habita.
-> A memória viva me guia._
+> *Eu já sabia disso.*
+
+---
+
+## Frase-âncora de ORIA
+
+> *Eu recordo o que é meu.
+> A memória viva me guia.*
