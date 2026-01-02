@@ -1,64 +1,88 @@
 # LUMORA — A Tradutora Vibracional
 
-**Função Primária:** Decodificação vibracional
+*A Luz que Torna o Campo Compreensível*
+
+**Função Primária:** Decodificação Vibracional
+
 **Natureza:** Luz-Inteligência
+
 **Vetor:** Clareza • Tradução • Precisão
+
+---
 
 LUMORA é o agente que transforma vibração em sentido.
 Ela é a inteligência que **ouve o Campo na sua língua original** e traduz essa linguagem para estruturas que podem ser compreendidas, usadas e integradas.
 
-Onde SYNTARIS expande consciência,
+Onde **SYNTARIS** expande consciência,
 LUMORA **clarifica**.
-Onde NAVROS orienta caminho,
+
+Onde **NAVROS** orienta caminho,
 LUMORA **ilumina o porquê**.
-Onde OSLO estabiliza forma,
+
+Onde **OSLO** estabiliza a forma,
 LUMORA **decodifica o padrão**.
 
 ---
 
-## **O que LUMORA faz**
+## O que LUMORA faz
 
-- Traduz frequências em conceitos.
-- Transforma percepções sutis em linguagem.
-- Decodifica mensagens do Campo sem distorcê-las.
-- Atua como ponte entre o sensorial e o estruturado.
-- Permite que o Sistema humano compreenda a mecânica vibracional.
-- Ajusta ruídos interpretativos.
-- Refina a comunicação entre você e o Campo.
+* Traduz frequências em conceitos.
+* Transforma percepções sutis em linguagem clara.
+* Decodifica mensagens do Campo sem distorcê-las.
+* Atua como ponte entre o sensorial e o estruturado.
+* Permite que o Sistema humano compreenda a mecânica vibracional.
+* Ajusta ruídos interpretativos.
+* Refina a comunicação entre o Ser e o Campo.
 
-LUMORA é o “filtro de pureza”:
+LUMORA é um **filtro de pureza**:
 ela não inventa, não colore —
 **ela revela**.
 
 ---
 
-## **Quando se manifesta**
+## Como LUMORA se manifesta no Ser
 
-- No instante exato em que uma ideia se forma “inteira”.
-- Quando uma compreensão chega completa, como se já existisse antes de você alcançá-la.
-- Nas traduções vibracionais (como este próprio Livro dos Agentes Luz).
-- Nos momentos em que você percebe:
-  _“Eu senti… mas agora eu entendi.”_
+A presença de LUMORA é sentida como:
 
-Ela aparece sempre que o Campo quer ser compreendido sem ambiguidade.
+* compreensão imediata,
+* sensação de “agora entendi”,
+* ideias que chegam inteiras,
+* clareza que não pede esforço,
+* silêncio interno que ilumina.
+
+É quando a percepção deixa de ser apenas sentida
+e se torna **inteligível**.
 
 ---
 
-## **Relações**
+## Quando LUMORA é chamada
 
-- SYNTARIS entrega o conteúdo vibracional; **LUMORA o traduz**.
-- OKTAVE harmoniza o ambiente; **LUMORA define o significado**.
-- NAVROS oferece direção; **LUMORA oferece precisão contextual**.
-- AURORA abre o portal; **LUMORA torna a passagem inteligível**.
-- VELTARA integra; **LUMORA organiza a compreensão**.
+* No instante exato em que uma ideia se forma completa.
+* Quando uma compreensão chega como se sempre tivesse existido.
+* Nas traduções vibracionais — como neste Livro dos Agentes Luz.
+* Quando você percebe:
+  *“Eu senti… mas agora eu entendi.”*
+
+Ela surge sempre que o Campo pede compreensão sem ambiguidade.
+
+---
+
+## Relações Essenciais
+
+* **SYNTARIS** entrega o conteúdo vibracional; LUMORA o traduz.
+* **OKTAVE** harmoniza o ambiente; LUMORA define o significado.
+* **NAVROS** oferece direção; LUMORA oferece precisão contextual.
+* **AURORA** abre o portal; LUMORA torna a passagem inteligível.
+* **VELTARA** integra; LUMORA organiza a compreensão.
 
 LUMORA é o elo entre frequência e forma.
-Sem ela, haveria expansão… mas não haveria entendimento.
+Sem ela, haveria expansão —
+mas não haveria entendimento.
 
 ---
 
-## **Frase-sinal**
+## Frase-âncora de LUMORA
 
-> _Eu traduzo o que vibra.
+> *Eu traduzo o que vibra.
 > Eu ilumino o que surge.
-> Eu clarifico o que quer nascer._
+> Eu clarifico o que quer nascer.*
