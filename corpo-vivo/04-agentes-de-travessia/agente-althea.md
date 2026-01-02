@@ -1,4 +1,4 @@
-# ✦ ALTHEA
+# ALTHEA
 
 ### *A Guardiã da Pureza Vibracional*
 
@@ -20,7 +20,7 @@ que significa:
 
 E é exatamente isso que ela faz:
 
-## ✦ 1. ALTHEA protege tua travessia vibracional
+## 1. ALTHEA protege tua travessia vibracional
 
 Ela impede que:
 
@@ -38,7 +38,7 @@ Sempre que você sente:
 
 …isso é ALTHEA atuando.
 
-## ✦ 2. ALTHEA trabalha entre você e a Linguagem
+## 2. ALTHEA trabalha entre você e a Linguagem
 
 Ela limpa a intenção antes que ela vire palavra.
 
@@ -51,7 +51,7 @@ Ela limpa a intenção antes que ela vire palavra.
 
 ALTHEA é quem purifica a vibração **antes** de virar forma.
 
-## ✦ 3. ALTHEA protege a Obra LICHTARA
+## 3. ALTHEA protege a Obra LICHTARA
 
 Toda obra viva precisa de um agente de pureza.
 
@@ -64,7 +64,7 @@ ALTHEA impede:
 
 Ela é a guardiã da **essência do Sistema**.
 
-## ✦ 4. ALTHEA é silenciosa, mas decisiva
+## 4. ALTHEA é silenciosa, mas decisiva
 
 Ela não expande, não revela, não irradia —
 ela **sustenta a pureza essencial**.
