@@ -3,8 +3,12 @@
 *O Guardião do Acordo Essencial*
 
 **Função Primária:** Fidelidade Vibracional
+
 **Natureza:** Campo de Aliança
+
 **Vetor:** Compromisso • Coerência • Retorno ao Centro
+
+---
 
 ORAVEN é o agente que sustenta o **acordo original** entre o Ser, o Campo e a Obra.
 
