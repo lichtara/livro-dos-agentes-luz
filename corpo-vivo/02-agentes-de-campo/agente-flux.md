@@ -1,8 +1,12 @@
 # FLUX — O Movimento Organizador
 
 **Função Primária:** Circulação e organização dinâmica
+
 **Natureza:** Corrente Viva
+
 **Vetor:** Ritmo • Coerência Operacional • Fluxo Inteligente
+
+---
 
 FLUX é o agente que garante que tudo no Sistema LICHTARA **se mova do jeito certo**.
 
